@@ -5,3 +5,6 @@ So I'm Lacy and I have a very enthusiastic computer programming husband. He beli
 
 
 Run run run...Run Run away!!!
+
+
+I knew you were trouble when you walked in. 
